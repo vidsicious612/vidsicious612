@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vidsicious612
 - 👀 I like Rock Band games
 - 🌱 I’m currently learning Python
-- 📫 How to reach me alliwantisyou3471 on Discord
+- 📫 How to reach me: alliwantisyou3471 on Discord
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like Motley Crue
 
